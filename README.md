@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Phelipe Oliveira 
+## Bem-vindo(a) ao perfil do Phelipe!! :) 
 
  <div>
    <a href="https://github.com/phelipe-oliveira">
